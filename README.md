@@ -1,1 +1,1 @@
-404
+https://www.StranglerTomyato.com/ をご覧ください
